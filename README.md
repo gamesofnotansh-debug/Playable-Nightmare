@@ -54,7 +54,7 @@ The nightmare experience must be central to the overall game.
 
 **Originally created and proposed by NotAnsh.**
 
-First published: [Insert publication date]
+First published: 1-11-2026
 
 ## Development of the Genre
 
